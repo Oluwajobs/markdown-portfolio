@@ -1,1 +1,3 @@
-Replace this with your name, and include a header.
+# Ibrahim Oluwajoba Adisa
+## Learning Sciences
+### Clemson University
