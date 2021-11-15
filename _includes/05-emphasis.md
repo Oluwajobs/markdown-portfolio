@@ -1,0 +1,1 @@
+I really love the Lord and desire to **please** Him. I know I have _so much to learn_ but then I believe that if I could just **abide** each day and remain **consistent** in my walk with the Father, He will help me till the end. I ❤️ programming too and I'm pretty much skilled in *Python, html, JS and SQL*.
